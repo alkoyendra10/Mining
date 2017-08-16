@@ -1,0 +1,2 @@
+# Mining
+perdana saja gan
